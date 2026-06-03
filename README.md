@@ -1,3 +1,2 @@
-# Kaagaaz<img width="736" height="513" alt="1000005209" src="https://github.com/user-attachments/assets/212838e3-7f19-45fb-ad2e-704d5c98ae1a" />
-
-Um not a high level coder but I can pretty much code anything...now um building my career in cybersecurity and hacking...hope you will stick to my journey 👾
+<img width="736" height="350" alt="1000005223" src="https://github.com/user-attachments/assets/1f63ac25-d260-4ef7-a840-919f8c27da71" />
+𝚃𝚎𝚌𝚑 𝚎𝚗𝚝𝚑𝚞𝚜𝚒𝚊𝚜𝚝 𝚊𝚗𝚍 𝚌𝚘𝚍𝚎 𝚝𝚒𝚗𝚔𝚎𝚛𝚎𝚛 💻 | 𝙿𝚘𝚠𝚎𝚛𝚎𝚍 𝚋𝚢 𝚌𝚊𝚏𝚏𝚎𝚒𝚗𝚎, 𝚌𝚕𝚎𝚊𝚗 𝚕𝚘𝚐𝚒𝚌, 𝚊𝚗𝚍 𝚘𝚙𝚝𝚒𝚖𝚊𝚕 𝚐𝚊𝚌𝚑𝚊 𝚙𝚞𝚕𝚕𝚜. 𝚆𝚑𝚎𝚗 𝙸'𝚖 𝚗𝚘𝚝 𝚋𝚞𝚒𝚕𝚍𝚒𝚗𝚐 𝚙𝚛𝚘𝚓𝚎𝚌𝚝𝚜 𝚘𝚛 𝚌𝚞𝚜𝚝𝚘𝚖𝚒𝚣𝚒𝚗𝚐 𝚖𝚢 𝚜𝚎𝚝𝚞𝚙, 𝙸'𝚖 𝚞𝚜𝚞𝚊𝚕𝚕𝚢 𝚔𝚎𝚎𝚙𝚒𝚗𝚐 𝚞𝚙 𝚠𝚒𝚝𝚑 𝚖𝚊𝚗𝚐𝚊 𝚍𝚛𝚘𝚙𝚜, 𝚘𝚟𝚎𝚛𝚊𝚗𝚊𝚕𝚢𝚣𝚒𝚗𝚐 𝚊𝚗𝚒𝚖𝚎 𝚕𝚘𝚛𝚎, 𝚘𝚛 𝚏𝚒𝚐𝚑𝚝𝚒𝚗𝚐 𝚁𝙽𝙶𝚎𝚜𝚞𝚜. 𝙷𝚒𝚐𝚑 𝚝𝚎𝚌𝚑, 𝚕𝚘𝚠 𝚕𝚞𝚌𝚔, 𝚒𝚗𝚏𝚒𝚗𝚒𝚝𝚎 𝚋𝚊𝚌𝚔𝚕𝚘𝚐.
